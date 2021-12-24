@@ -5,5 +5,4 @@ Perhaps better known for her screenwriting (Silkwood, When Harry Met Sally, Hear
 
 ## Broken Glass
 
-by Alain Mabanckou (2005), translated by Helen Stevenson (2009)
-The Congolese writer says he was “trying to break the French language” with Broken Glass – a black comedy told by a disgraced teacher without much in the way of full stops or paragraph breaks. As Mabanckou’s unreliable narrator munches his “bicycle chicken” and drinks his red wine, it becomes clear he has the history of Congo-Brazzaville and the whole of French literature in his
+by Alain Mabanckou (2005), translated by Helen Stevenson (2009) The Congolese writer says he was “trying to break the French language” with Broken Glass – a black comedy told by a disgraced teacher without much in the way of full stops or paragraph breaks. As Mabanckou’s unreliable narrator munches his “bicycle chicken” and drinks his red wine, it becomes clear he has the history of Congo-Brazzaville and the whole of French literature in his work
